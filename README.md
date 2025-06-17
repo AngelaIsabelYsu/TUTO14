@@ -18,16 +18,16 @@ Podría implementar micro-pausas activas cada 45-50 minutos de estudio: estirami
 ## 🚀 Parte 2: Plan Personal de Bienestar Físico
 
 ### ✅ **Actividad física semanal seleccionada**
-**Rutina de yoga suave y caminatas conscientes**
-- 3 sesiones de yoga restaurativo de 20-25 minutos
+**Rutina de baile libre y caminatas conscientes**
+- 3 sesiones de baile libre de 20-25 minutos (salsa, reggaetón, pop, o cualquier ritmo que me inspire)
 - 2 caminatas mindful de 30 minutos por semana
 - Sesiones de estiramiento dinámico de 10 minutos diarios
 
 ### 💡 **Motivación personal profunda**
-Esta rutina la mantendré porque he observado que mi capacidad de aprendizaje y retención mejora significativamente cuando mi cuerpo está relajado y energizado. El yoga me ayuda a desarrollar una mejor conciencia corporal, lo que reduce la tensión acumulada durante las largas sesiones de estudio. Las caminatas me permiten procesar información de manera subconsciente y a menudo surgen insights creativos durante estos momentos. Además, mantener esta práctica me ayuda a construir disciplina y autocuidado, cualidades esenciales para el éxito académico a largo plazo.
+Esta rutina la mantendré porque he observado que mi capacidad de aprendizaje y retención mejora significativamente cuando mi cuerpo está relajado y energizado. El baile me permite liberar tensiones de una manera divertida y natural, activando endorfinas que mejoran mi estado de ánimo y disposición para el estudio. La música y el movimiento rítmico me ayudan a desconectar completamente del estrés académico, funcionando como una terapia emocional. Las caminatas me permiten procesar información de manera subconsciente y a menudo surgen insights creativos durante estos momentos. Además, mantener esta práctica me ayuda a construir disciplina y autocuidado, cualidades esenciales para el éxito académico a largo plazo.
 
 ### 📅 **Horario estratégico propuesto**
-- **Lunes, miércoles, viernes**: Yoga suave (7:00-7:25 AM) - para comenzar el día con energía centrada
+- **Lunes, miércoles, viernes**: Baile libre (7:00-7:25 AM) - para comenzar el día con energía positiva y buen humor
 - **Martes y sábado**: Caminatas reflexivas (5:30-6:00 PM) - para procesar lo aprendido durante el día
 - **Diario**: Estiramiento dinámico (antes de iniciar el estudio matutino y después de la última sesión de estudio)
 
